@@ -1,0 +1,1 @@
+# arkadas-sayilari-bulan-kod-parcasi
